@@ -1,4 +1,4 @@
-## Olá, meu nome é {Kaua}!
+## Olá, meu nome é Kauã Barros
 
 ### ⚙️ GitHub Analytics
 
